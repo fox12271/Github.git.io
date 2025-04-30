@@ -1,2 +1,0 @@
-# elsö fájl
-wwwwwwwwwwwwwww
